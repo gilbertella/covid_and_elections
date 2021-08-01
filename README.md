@@ -1,1 +1,0 @@
-# covid_and_elections
